@@ -1,4 +1,4 @@
-# 
+# vip Affinity Photo para PC scripts é o melhor Affinity Photo para PC scripts com animação e ferramentas de seleção. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
